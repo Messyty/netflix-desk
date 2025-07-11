@@ -1,6 +1,7 @@
 .. raw:: html
  
-    <meta http-equiv="refresh" content="0; url=https://aclogportal.com/">
+    <meta http-equiv="refresh" content="0; url=https://accuratelivechat.com/">
+
 
 How to Reach Netflix Tv Customer Care: A Comprehensive Guide 
 ============================================
